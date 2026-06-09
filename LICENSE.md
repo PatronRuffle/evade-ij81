@@ -1,4 +1,4 @@
-#  
+#  custom Scripts for evade offers the most advanced evade Script, with instant win and silent aim. Perfect for dominating any match.
 
 
 
